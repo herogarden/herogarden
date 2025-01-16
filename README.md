@@ -6,7 +6,7 @@
 <p align="center">
   <img src="https://github.com/user-attachments/assets/fe7f50bf-0afb-4611-86d2-852addb6f82c"/>
   <br>
-  <img src="https://github.com/user-attachments/assets/9a043471-8cf0-4dcd-aedd-af3465b0226f"/>
+  <img src="https://github.com/user-attachments/assets/5749d1c3-40a5-4da9-9456-f6b91033fd67"/>
   <br>
   <img src="https://github.com/user-attachments/assets/918d5140-3b64-4d45-9b29-b2dac35de054"/>
   somnia - 22 - she/they/it
@@ -15,8 +15,6 @@
   <br>
   no dni just don't be a weirdo!
   <br>
-  <br>
-  <img src="https://github.com/user-attachments/assets/8262771b-0d23-47ed-a1b8-0de7a1f5ca22"/>
   <br>
   <img src="https://github.com/user-attachments/assets/fe7f50bf-0afb-4611-86d2-852addb6f82c"/>
 </p>
