@@ -13,20 +13,14 @@
   <img src="https://github.com/user-attachments/assets/918d5140-3b64-4d45-9b29-b2dac35de054"/>
   <br>
   <br>
-  no dni just don't be a weirdo!
+  no DNI just don't be a weirdo!
   <br>
   <br>
   <img src="https://github.com/user-attachments/assets/fe7f50bf-0afb-4611-86d2-852addb6f82c"/>
 </p>
 <p align="center">
   <img src="https://github.com/user-attachments/assets/e9d0e71a-0bbd-413b-b4a3-b33a7fb9df41"/>
-  <img src="https://github.com/user-attachments/assets/0df6f814-db46-40a8-b900-d9fc3393e830"/>
   <img src="https://github.com/user-attachments/assets/0395c68c-7203-42b0-982a-cc5c17a8cf41"/>
   <img src="https://github.com/user-attachments/assets/8e3c5f6d-1cc9-4ebb-8e27-c2ed70658ff2"/>
   <img src="https://github.com/user-attachments/assets/fb870dc7-8607-4f41-802a-609ae7414506"/>
-</p>
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/083f95f8-adc4-429c-b37e-4712afa495f5"/>
-  <img src="https://github.com/user-attachments/assets/ad54ca69-61a5-4b6f-a0eb-6448db2e0827"/>
-  <img src="https://github.com/user-attachments/assets/b6d17933-8328-449e-826a-a4e601546d8e"/>
 </p>
