@@ -6,7 +6,7 @@
 <p align="center">
   <img src="https://github.com/user-attachments/assets/fe7f50bf-0afb-4611-86d2-852addb6f82c"/>
   <br>
-  <img src="https://github.com/user-attachments/assets/1984dfae-a8d1-48a2-9a6d-32e79068baec"/>
+  <img src="https://github.com/user-attachments/assets/b99dc237-130e-4dc4-8d3a-ae0142405d21"/>
   <br>
   <img src="https://github.com/user-attachments/assets/918d5140-3b64-4d45-9b29-b2dac35de054"/>
   somnia - 22 - she/they/it
